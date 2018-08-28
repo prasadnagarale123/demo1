@@ -1,4 +1,4 @@
 # demo1
-hi hello good morning everyone
-from amrut software.
-from belgaum team suresh hallyali
+dont find yourself create yourself.
+do what is hard.
+start where you are and use what you have and you can do anything.
